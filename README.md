@@ -1,4 +1,4 @@
-# 🎯 Apex Legends 2025 – Undetected Cheat  
+# 🎯 Apex Legends 2025 GX  
 
 Upgrade your gameplay in **Apex Legends** with our all-in-one private tool.  
 Packed with **Aimbot, ESP, Wallhack, No Recoil, Skin Changer** and more — optimized for smooth, legit gameplay.  
